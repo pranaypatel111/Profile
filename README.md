@@ -1,4 +1,5 @@
-# Profile of PRANAY P. PATEL	
+# Profile of PRANAY P. PATEL
+![LinkedIn](https://www.linkedin.com/in/pranay-p-patel-mba-25433034)
 ```
 23 Keegan Ct
 Marlton, NJ 08053
